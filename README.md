@@ -6,6 +6,16 @@ I am multifandom if you can't tell (eh)<br>
 she/her but tbh idc about Pronouns go call me he/him or smth<br>
 <img src="https://images2.imgbox.com/10/f6/aEkQ2g1V_o.gif" height="70px">
 <img src="https://images2.imgbox.com/9e/a6/shpJI2ea_o.gif" height="70px">
+<br>socials:<br>
+  <a href="https://dwnecrozzmaintro.straw.page">Strawpage</a><br>
+  <a href="https://dwnecrozzma.atabook.org/">Atabook</a><br>
+  <a href="https://pin.it/4DzqDvzgN">Pinterest</a><br>
+  <a href="https://cara.app/dawnwinin">Cara</a><br>
+  <a href="https://toyhou.se/DWnecrozzma">Toyhouse</a><br>
+  <a href="https://artfight.net/~DWnecrozzma">Artfight</a><br>
+  <a href="https://colormytree.me/2025/01KBC81MD2GMHZBBGW69QQD7YP">Color my tree</a><br><br>
+
+
 <img src="https://images2.imgbox.com/dd/cc/pgpN2rUQ_o.png">
 
 </p>
