@@ -34,8 +34,10 @@ she/her but tbh idc about Pronouns go call me he/him or smth<br>
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/3230e3cc-f70c-472f-a878-52432f033c2d/dg2d146-f229fed3-2d12-4ad3-9d59-666bc9e6b81b.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8zMjMwZTNjYy1mNzBjLTQ3MmYtYTg3OC01MjQzMmYwMzNjMmQvZGcyZDE0Ni1mMjI5ZmVkMy0yZDEyLTRhZDMtOWQ1OS02NjZiYzllNmI4MWIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.WZeRXEgtiPXQy6pgZzZ4norwkTZdOmWYyYh8SvjoX10">
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/0e940866-f03a-40ca-b82e-8ea24e23bf25/djcmzo3-c73114fa-ccb5-427e-84d0-c2a32eefdb1a.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi8wZTk0MDg2Ni1mMDNhLTQwY2EtYjgyZS04ZWEyNGUyM2JmMjUvZGpjbXpvMy1jNzMxMTRmYS1jY2I1LTQyN2UtODRkMC1jMmEzMmVlZmRiMWEucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.DxjcEhxQckhxgnbS24G0JGf_u3AP_k8-6f_OdZVhhN4">
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=DWnecrozzma&color=b50d91&label=Wowzerz&style=for-the-badge"><br>
-  <img src="https://github-readme-stats.vercel.app/pin/api?username=DWnecrozzma&theme=tokyonight&show_icons=true"/>
+<img src="https://komarev.com/ghpvc/?username=DWnecrozzma&color=b50d91&label=Wowzerz-views&style=for-the-badge"><br>
+  
+  <img src="https://github-readme-stats-sigma-five.vercel.app/api?username=DWnecrozzma&show_icons=true&theme=tokyonight" />
+
 </p> 
 <br><i>pssstt hey go check my other respiratory</i>
 <img src="https://images2.imgbox.com/dd/cc/pgpN2rUQ_o.png">
