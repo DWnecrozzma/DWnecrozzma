@@ -39,7 +39,7 @@ she/her but tbh idc about Pronouns go call me he/him or smth<br>
   <img src="https://github-readme-stats-sigma-five.vercel.app/api?username=DWnecrozzma&show_icons=true&theme=tokyonight" />
 
 </p> 
-<br><i>pssstt hey go check my other respiratory</i>
+<br><i>pssstt hey go check my other respiratory, i update them very frequently!</i>
 <img src="https://images2.imgbox.com/dd/cc/pgpN2rUQ_o.png">
 
 </p>
