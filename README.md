@@ -15,6 +15,7 @@ Zoshigaya Itsuki Fictkin and yume (sharing)<br>
   <a href="https://ibispaint.com/artist1/1770060091250925568/?type=illust&sort=new">ibispaint</a><br>
   <a href="https://toyhou.se/DWnecrozzma">Toyhouse</a><br>
   <a href="https://artfight.net/~DWnecrozzma">Artfight</a><br>
+  <a href="https://x.com/DW_Proosha">X / twitter</a><br>
   <a href="https://colormytree.me/2025/01KBC81MD2GMHZBBGW69QQD7YP">Color my tree</a><br><br>
   
 <img src="https://images2.imgbox.com/3e/b3/YBZZvHtz_o.png">
