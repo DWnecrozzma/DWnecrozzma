@@ -17,6 +17,7 @@ Zoshigaya Itsuki Fictkin and yume (sharing)<br>
   <a href="https://artfight.net/~DWnecrozzma">Artfight</a><br>
   <a href="https://x.com/DW_Proosha">X / twitter</a><br>
   <a href="https://colormytree.me/2025/01KBC81MD2GMHZBBGW69QQD7YP">Color my tree</a><br><br>
+  <a href="https://prns.cc/uyngy">pronouns cc</a><br>
   
 <img src="https://images2.imgbox.com/3e/b3/YBZZvHtz_o.png">
 <img src="https://images2.imgbox.com/a5/30/2GJxV0kq_o.png"><img src="https://images2.imgbox.com/9e/c3/8zAqY7LO_o.png">
