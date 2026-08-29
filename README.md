@@ -19,7 +19,7 @@ Zoshigaya Itsuki Fictkin and yume (sharing)<br>
   <a href="https://colormytree.me/2025/01KBC81MD2GMHZBBGW69QQD7YP">Color my tree</a><br>
   <a href="https://prns.cc/uyngy">pronouns cc</a><br><br>
   
-<img width="99" height="56" alt="1000005766" src="https://github.com/user-attachments/assets/3cf68c9f-8a4e-439d-84d2-6fd63f5a6e75" />
+  
 <img width="99" height="56" alt="1000005764" src="https://github.com/user-attachments/assets/9785c94f-5cfd-450c-b0ff-705fa46ceb6f" />
 <img width="99" height="57" alt="1000005755" src="https://github.com/user-attachments/assets/74385431-1515-4a0f-bb6f-1cf612bdfe39" />
 <img width="99" height="56" alt="1000005752" src="https://github.com/user-attachments/assets/a2918712-81b6-46fa-95d6-7ae20b8cb833" />
